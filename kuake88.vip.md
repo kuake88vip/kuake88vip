@@ -10,17 +10,17 @@
 
 夸克最新地址(1): https://kuake88.vip （请复制到浏览器打开）
 
-夸克最新地址(2): https://kuake88.cc（请复制到浏览器打开）
+夸克最新地址(2): https://kuake88.cc （请复制到浏览器打开）
 
-夸克最新地址(3): http://kuake88.me（请复制到浏览器打开）
+夸克最新地址(3): http://kuake88.me （请复制到浏览器打开）
 
 永久地址（需VPN、科学上网）https://kuake.me （请复制到浏览器打开）
 
 夸克网官方商务：https://t.me/slf752 （请复制到浏览器打开）
 
-官方APP下载地址：https://kuake.tw（请复制到浏览器打开）
+官方APP下载地址：https://kuake.tw （请复制到浏览器打开）
 
-失联获取最新地址： （发送任何信息到邮箱即可获取最新地址）liangliangwei752@gmail.com
+失联获取最新地址： （发送任何信息到邮箱即可获取最新地址） liangliangwei752@gmail.com
 
 网址打不开？？？ 1.请切换网络 WIFI/4G/5G 或者使用 科学上网工具（VP恩）
  2.请输入完整地址到浏览器访问,防止恶意劫持请带上 https://
